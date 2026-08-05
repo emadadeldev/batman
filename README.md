@@ -1,2 +1,2 @@
 # batman
-Redirect to Batman Cave Arabic Archive community
+Shortcut Redirect to Batman Cave Arabic Archive community website
